@@ -1,4 +1,4 @@
-# **My Greatest Fear by Nelson**
+# **My Greatest Fears (mainly) by Nelson**
 
  I do not get a good grade in school by just a little bit and I just fall out of the admission average needed fpor the course
  From there I dissapoint my parents and they disown me
@@ -7,7 +7,7 @@
  
  I don't know what else I want to add so heres a list
  
- ## ~Nelson's super cool list 0_0~
+ ## **Nelson's super cool list of other fears that might intrigue you 0_0**
  + Dragons
  + Being poisoned
  + Anything involving death
