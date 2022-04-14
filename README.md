@@ -6,6 +6,8 @@
  So another fear I have is being embarassed in front of everyone I know and in front of strangers thats bad too
  
  I don't know what else I want to add so heres a list
+ 
+ ## ~Nelson's super cool list 0_0~
  + Dragons
  + Being poisoned
  + Anything involving death
