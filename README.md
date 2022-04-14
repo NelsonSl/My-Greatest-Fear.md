@@ -4,7 +4,13 @@
  From there I dissapoint my parents and they disown me
  Also being embarassed is pretty bad
  So another fear I have is being embarassed in front of everyone I know and in front of strangers thats bad too
+ 
+ I don't know what else I want to add so heres a list
+ + Dragons
+ + Being poisoned
+ + Anything involving death
+ + OH also ending up as a hermit or a loser
 
 README.md
 
-(www.https://github.com/NelsonSl/My-Greatest-Fear.md/edit/main/README.md)
+https://github.com/NelsonSl/My-Greatest-Fear.md/edit/main/README.md
